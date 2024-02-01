@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CarbonDeer13
+- 👀 I’m interested in tech
+- 🌱 I’m currently learning programming
+- 💞️ I’m looking to collaborate on SpaceX
+- ⚡ Fun fact: my roll no is 26..
